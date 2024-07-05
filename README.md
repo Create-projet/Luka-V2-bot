@@ -1,9 +1,6 @@
 #𝐆𝐎𝐀𝐓𝐁𝐎𝐓𝐕2 𝐂𝐑𝐄𝐄 𝐏𝐀𝐑 ﹝🌹𝐋𝐔𝐊𝐀🌹﹞
 # 𝐩𝐫𝐨𝐣𝐞𝐭 𝐝𝐞 𝐜𝐫𝐞𝐚𝐭𝐢𝐨𝐧 </h1>
-<img                                  src="https://i.ibb.co/dWmW039/image.jpg"                                    alt="banner">   
-<h1 align="center"><img               src="" width="22px">
-
-# 𝐏𝐇𝐎𝐓𝐎 𝐃𝐄 𝐏𝐑𝐎𝐕𝐈𝐋 𝐒𝐔𝐑 𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊🎖</h1>
+<img                                  src="https://i.ibb.co/dWmW039/image.jpg"                                    alt="banner">   # 𝐏𝐇𝐎𝐓𝐎 𝐃𝐄 𝐏𝐑𝐎𝐕𝐈𝐋 𝐒𝐔𝐑 𝐅𝐀𝐂𝐄𝐁𝐎𝐎𝐊🎖</h1>
 <img src="https://i.ibb.co/yVR0MLc/image.jpg"/>
 # 🌹𝐋𝐮𝐤𝐚🌹 {𝐔𝐧𝐢𝐯𝐞𝐫𝐬𝐢𝐭𝐞́ 𝐩𝐫𝐢𝐯𝐞́𝐞} ✰
 𝐌𝐘 𝐒𝐂𝐎𝐎𝐋 𝐈𝐍𝐅𝐎𝐑𝐌𝐀𝐓𝐈𝐎𝐍𝐒:</h1>
